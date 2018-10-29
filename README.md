@@ -1,2 +1,2 @@
-# silentwraith.github.io
+# AkashJugnu.github.io
 portfolio
